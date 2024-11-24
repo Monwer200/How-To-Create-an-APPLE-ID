@@ -1,4 +1,4 @@
-<h1>Privacy Policy </h1>
+<h1>Privacy Policy </h1>monwer
 
 Thank you for downloading How To Create an APPLE ID.It is the policy of How To Create an APPLE ID to respect your privacy, 
 and the privacy of all users of our applications. 
